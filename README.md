@@ -1,3 +1,3 @@
 # Community Classroom is OP!
 
-- Satya Sourav Patel says that this community is amazing.
+- Divyansh Chandak says that this community is amazing.
